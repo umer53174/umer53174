@@ -3,6 +3,8 @@ Aspiring SOC Analyst with an MS in Cyber Security and a background in software d
 # CONTACT
 Email:
 mr.umerirshad@gmail.com
+
 https://www.linkedin.com/in/umerirshad/
+
 Phone: +92 327 575 7939
 
